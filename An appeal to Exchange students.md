@@ -20,6 +20,6 @@ It would be appreciated if you
 - can speak some Chinese, (especially football terminologies),
 - and/or play CF/DMF/GK on the pitch.
 
-We have regular training sessions on **Friday afternoon**, at **First Stadium**, and **a trial will be held then**. However, we reserve the right to decline players who do not meet our most salient demands yet ask for positions in the starting 11.
+We have regular training sessions on **Friday afternoon**, at **First Stadium**, and **a trial will be held on March 1st**. However, we reserve the right to decline players who do not meet our most salient demands yet ask for positions in the starting 11.
 
 **Feel free to contact the captain (Wechat ID: RobbieCyy) on Wechat if you would like to join us.**
