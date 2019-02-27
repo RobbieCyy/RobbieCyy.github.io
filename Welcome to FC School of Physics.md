@@ -1,3 +1,5 @@
+English <a href="欢迎来到物理学院足球队.html"> 中文</a>
+
 ## FC School of Physics
 ---
 ### About the team
